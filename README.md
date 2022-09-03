@@ -8,4 +8,4 @@ Laboratornay 1
 ![11111](https://user-images.githubusercontent.com/112747989/188261383-be390a83-b60b-41e0-990d-88f2eeaf3357.jpg)
 
 # Detailed information about me
-### Vkontakte[https://vk.com/al_feed.php]
+ [Vkontakte](https://vk.com/al_feed.php)
